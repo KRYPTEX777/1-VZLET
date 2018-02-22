@@ -1,3 +1,2 @@
 #1 vzlet
-Andreyka1
-I want to sink coins
+Andreyka1  I want to earn coins in large quantities
